@@ -2,7 +2,7 @@
 - 👀 I’m interested in web 3 
 - 🌱 I’m currently learning code & testing testnets
 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on various nft projects-blockchain-drc-20 ltc-20 smart contracts ect . 
 - 📫 How to reach me . X/ mariocodes21@420time8 
 
 <!---
